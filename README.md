@@ -1,1 +1,0 @@
-# kadirbasaran-mobileapp
